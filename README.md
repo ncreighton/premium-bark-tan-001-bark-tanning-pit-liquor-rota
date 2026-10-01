@@ -1,0 +1,2 @@
+# premium-bark-tan-001-bark-tanning-pit-liquor-rota
+Professional traditional-tanning Notion template — without the professional price tag.  Fully documented: every section explained so you know exactly what to customize. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Bark Tanning Pit &amp; Liquor Rotation Log — fully configured and ready to use - Pre-buil
